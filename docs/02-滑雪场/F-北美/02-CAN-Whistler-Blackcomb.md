@@ -1,4 +1,4 @@
-# Canada Whistler-Blackcomb
+# Canada: Whistler-Blackcomb
 
 - 地点：加拿大
 

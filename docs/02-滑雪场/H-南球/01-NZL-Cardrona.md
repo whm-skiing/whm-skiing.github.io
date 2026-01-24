@@ -1,4 +1,4 @@
-# New Zealand Cardrona
+# New Zealand: Cardrona
 
 - 地点：新西兰
  

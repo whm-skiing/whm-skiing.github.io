@@ -1,4 +1,4 @@
-# Switzerland St.Moritz Corviglia
+# Switzerland: St.Moritz Corviglia
 
 - 地点：瑞士
 

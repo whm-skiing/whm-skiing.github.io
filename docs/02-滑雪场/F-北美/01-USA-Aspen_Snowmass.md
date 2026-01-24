@@ -1,4 +1,4 @@
-# USA Aspen Snowmass
+# USA: Aspen Snowmass
 
 - 地点：美国
 

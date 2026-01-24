@@ -1,4 +1,4 @@
-# Japan Rusutsu
+# Japan: Rusutsu
 
 - 地点：日本
 
